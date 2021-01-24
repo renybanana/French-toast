@@ -1,0 +1,1 @@
+bread toast eggs cinnamon milk vanilla extract bowl plate pan stove honey

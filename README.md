@@ -1,1 +1,1 @@
-# French-toast
+# how to make French-toast with ten easy steps!
